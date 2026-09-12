@@ -1,1 +1,1 @@
-- [Motionless electromagnetic generation](https://m.youtube.com/watch?v=sUy2-hYiaBE)
+
